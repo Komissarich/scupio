@@ -1,2 +1,6 @@
 # scupio
-<video src='https://drive.google.com/file/d/1UarTbdwZC5xjvQxXGN5KzSNwKzoaocQO/view?usp=sharing' width=180/>
+
+
+
+https://github.com/user-attachments/assets/11608de8-9149-4615-a4b7-281c3d5ea894
+
